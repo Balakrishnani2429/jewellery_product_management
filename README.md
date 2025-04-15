@@ -1,0 +1,1 @@
+# jewellery_product_management
